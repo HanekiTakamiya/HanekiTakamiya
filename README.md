@@ -1,7 +1,7 @@
 ### Hey, im slytrics 👋
 
 
-![image](https://i.giphy.com/media/TZnb9yP17Mc9i/giphy_s.gif)
+![image](https://25.media.tumblr.com/c7962f0a224f88f965e375a33953a8c5/tumblr_msh4mj2arL1scncwdo1_500.gif)
 
 
 
